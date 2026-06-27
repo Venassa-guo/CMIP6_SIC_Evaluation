@@ -95,4 +95,4 @@ Quantify the epistemic and aleatoric uncertainties of the AI-corrected Earth Sys
 Xinyu Guo
 Prospective PhD Candidate in Marine AI & Earth System Modeling
 📧 Email: 15021099770@163.com
-🔗 [Your LinkedIn Profile] | 
+🔗 [ https://www.linkedin.com/in/xinyu-guo-125815391/ ]  
